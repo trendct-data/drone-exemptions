@@ -1,0 +1,1 @@
+If you can't get enough Trend there, follow us on <a href="http://twitter.com/trendct">Twitter<a> and <a href="http://facebook.com">Facebook</a>.
